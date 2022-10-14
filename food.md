@@ -1,1 +1,1 @@
-french fries, freedom fries, papitas fritasgit 
+All food is good.
